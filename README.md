@@ -32,4 +32,4 @@ Track revenue and profitability over time and find which product categories earn
 **Heena Kausar**
 
 - GitHub: [hkausar542-cyber](https://github.com/hkausar542-cyber)
-- LinkedIn: [Heena Kausar](https://www.linkedin.com/in/heena-kausar/)
+- LinkedIn: [Heena Kausar](https://www.linkedin.com/in/heena-kausar-256331301/)
